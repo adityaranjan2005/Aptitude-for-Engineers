@@ -2,7 +2,7 @@
 
 ---
 
-## All the best, You will definitely crack it. 😄👍
+## All the best 😄👍
 
 ---
 
